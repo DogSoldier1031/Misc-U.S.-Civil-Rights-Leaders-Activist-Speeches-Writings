@@ -14,6 +14,8 @@ https://x.com/zkillah46/status/1753816056999608765?s=46
 
 https://m.youtube.com/watch?v=6_uYWDyYNUg
 
+https://youtu.be/2XtqoRYvUEs?si=nA2NxS8B2jQkwPMu
+
 MLK
 
 https://mlkglobal.org/2017/11/23/martin-luther-king-on-capitalism-in-his-own-words/
