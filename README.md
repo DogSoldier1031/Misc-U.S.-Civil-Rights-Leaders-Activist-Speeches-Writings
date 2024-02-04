@@ -52,3 +52,15 @@ AfroMarxist on YouTube
 
 https://m.youtube.com/@AfroMarxist
 
+Class 1: Slavocracy and the Civil War - Black Struggle is Class Struggle
+
+https://m.youtube.com/watch?v=y1q0uduZCD8
+
+Class 2: Reconstruction and populism - Black Struggle is Class Struggle
+
+https://m.youtube.com/watch?v=xCoUv92XFT8
+
+Class 3: Black communist history in the U.S. - Black Struggle is Class Struggle
+
+https://m.youtube.com/watch?v=WqvjwQjFFlk
+
