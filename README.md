@@ -1,6 +1,6 @@
-Black Leaders Discussion feat. Angela Davis, Kwame Ture & Fannie Lou Hamer (1973)
+MLK
 
-https://m.youtube.com/watch?v=MojDoeloUTc
+https://mlkglobal.org/2017/11/23/martin-luther-king-on-capitalism-in-his-own-words/
 
 Malcolm X
 
@@ -16,13 +16,17 @@ https://m.youtube.com/watch?v=6_uYWDyYNUg
 
 https://youtu.be/2XtqoRYvUEs?si=nA2NxS8B2jQkwPMu
 
-MLK
+Black Leaders Discussion feat. Angela Davis, Kwame Ture & Fannie Lou Hamer (1973)
 
-https://mlkglobal.org/2017/11/23/martin-luther-king-on-capitalism-in-his-own-words/
+https://m.youtube.com/watch?v=MojDoeloUTc
 
 Historical footage and interviews with Black Panthers
 
 https://m.youtube.com/watch?v=kHWGAEF5GGA
+
+Huey P Newton
+
+https://youtu.be/aTLo65d29RU?si=CkgSp1hEm2V-BE3Z
 
 Kwame Ture
 
