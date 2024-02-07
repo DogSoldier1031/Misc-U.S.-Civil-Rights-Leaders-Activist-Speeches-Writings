@@ -16,6 +16,10 @@ https://m.youtube.com/watch?v=6_uYWDyYNUg
 
 https://youtu.be/2XtqoRYvUEs?si=nA2NxS8B2jQkwPMu
 
+https://www.blackpast.org/african-american-history/speeches-african-american-history/1964-malcolm-x-s-speech-founding-rally-organization-afro-american-unity/
+
+https://parade.com/1161190/saginecorrielus/malcolm-x-quotes/
+
 Black Leaders Discussion feat. Angela Davis, Kwame Ture & Fannie Lou Hamer (1973)
 
 https://m.youtube.com/watch?v=MojDoeloUTc
