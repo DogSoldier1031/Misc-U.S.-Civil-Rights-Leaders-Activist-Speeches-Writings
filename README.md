@@ -1,3 +1,18 @@
+Claudia Jones
+
+https://m.youtube.com/watch?v=VUMTOwrzgzs
+
+https://m.youtube.com/watch?v=GPe43iPlEEw
+
+Harry Haywood - Black Bolshevik
+
+https://files.libcom.org/files/Black%20Bolshevik%20Autobiography%20of%20an%20Afro-American%20Communist.pdf
+
+Hammer & Hoe
+
+https://files.libcom.org/files/Hammer%20and%20hoe%20Alabama%20Communists%20during%20the%20Great%20Depression.pdf
+
+
 MLK
 
 https://mlkglobal.org/2017/11/23/martin-luther-king-on-capitalism-in-his-own-words/
